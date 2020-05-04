@@ -1,5 +1,5 @@
 ### About Me
-Scientist and technologist.   
+Scientist and technologist trying to decipher our messy present to make a more enjoyable future
   
 ### Contact
 Jonathan Platkiewicz  
